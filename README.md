@@ -1,2 +1,3 @@
 # hello-world
-too old for this?
+Too old for this?
+Slightly used but still servicable mind seaking meaningful work.
